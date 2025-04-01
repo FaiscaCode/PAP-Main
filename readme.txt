@@ -1,0 +1,1 @@
+O FootShopping é um site dedicado à venda de camisolas de futebol, oferecendo uma vasta seleção de equipamentos de clubes e seleções de todo o mundo. Com um design intuitivo e uma experiência de compra simplificada, o nosso objetivo é proporcionar aos fãs de futebol produtos de alta qualidade a preços competitivos.
